@@ -1,0 +1,2 @@
+## Motivations
+> I am motivated to change my career into software development because the opportunities for growth and continued learning seem greater than valet parking management (my past field). The opportunity to land a remote job is greater and I would rather live in an affordable pastoral setting than downtown in a major city. Also, tech is the way of the future and coding will soon be considered the "new literacy." 
